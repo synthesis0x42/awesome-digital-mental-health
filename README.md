@@ -1,4 +1,4 @@
-# mental health resource directory for general public, as a lot of my resources are kind of useless or irrelevant to you… bolded is “I’ve used this and highly rec it”
+# mental health resource directory for general public. some may be australia only. bolded is “I’ve used this and highly rec it”
 
 KIDS HELPLINE AND SUICIDE HOTLINES ARE ASS.  
 [**Head to Health**](https://www.headtohealth.gov.au/) has a quiz and shit where you can look for what’s best for you. [Mental Health and Community Services \- WayAhead Directory](https://directory.wayahead.org.au/all-categories/) can help you look for something near you. Other directories below, by the way.
