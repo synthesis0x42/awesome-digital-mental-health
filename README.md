@@ -27,7 +27,7 @@ digital meditation, written.
 relaxation exercise.
 
 ## Courses, worksheets, tools, etc:
-[**Finch - Your New Self-Care Best Friend**]()
+[**Finch - Your New Self-Care Best Friend**](https://finchcare.com/)  
 I LOVE THIS APP SO MUCH. It's got goals you can set like a todolist or schedule like in a calendar, self-care activities, and mental health first-aid activities for when you're undergoing crises -- all while you take care of your bird. Gamified self-care. There's a premium version but the free ver. is solid on its own.
 
 [Sensory Modulation Worksheet \- LETSS](https://www.letss.org.au/images/Sensory_Modulation_Worksheet.pdf)  
