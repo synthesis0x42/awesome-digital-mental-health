@@ -27,6 +27,8 @@ digital meditation, written.
 relaxation exercise.
 
 ## Courses, worksheets, tools, etc:
+[**Finch - Your New Self-Care Best Friend**]()
+I LOVE THIS APP SO MUCH. It's got goals you can set like a todolist or schedule like in a calendar, self-care activities, and mental health first-aid activities for when you're undergoing crises -- all while you take care of your bird. Gamified self-care. There's a premium version but the free ver. is solid on its own.
 
 [Sensory Modulation Worksheet \- LETSS](https://www.letss.org.au/images/Sensory_Modulation_Worksheet.pdf)  
 calming strategies 
@@ -36,7 +38,7 @@ calming strategies
 [**These DBT worksheets are MUCH better though**](https://www.mindproject.com.au/free-worksheets/dbt)  
 the site has other worksheets too.
 
-[**THE NEURODIVERGENT FRIENDLY WORKBOOK OF DBT SKILLS**](https://static1.squarespace.com/static/635a1360b5d4b729bdb834f2/t/63d80a77dccd32294cad27d6/1675102845455/DBT+Neurodivergent+Friendly.pdf) is also really good, specifically for you, I think
+[**THE NEURODIVERGENT FRIENDLY WORKBOOK OF DBT SKILLS**](https://static1.squarespace.com/static/635a1360b5d4b729bdb834f2/t/63d80a77dccd32294cad27d6/1675102845455/DBT+Neurodivergent+Friendly.pdf) is also really good.
 
 [**e-couch**](https://www.ecouch.com.au/) (don’t like it as much as the other bolded items but not awful)  
 has programs for depression, anxiety, social anxiety (and others but irrelevant for you). just signed up, seems okay. same organisation as moodgym but I like e-couch a lot more.
