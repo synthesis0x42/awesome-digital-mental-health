@@ -47,7 +47,7 @@ has programs for depression, anxiety, social anxiety (and others but irrelevant 
 emotion stuff in general ig??
 
 [MoodGYM](https://www.moodgym.com.au/)  
-I don’t like it, but try it if you want.
+I don’t like it, but try it if you want. Australia specific iirc.
 
 [**Learn For Free \- Improve Your Social Skills**](https://www.improveyoursocialskills.com/learn-social-skills)   
 not mental health directly, but helpful for autism.
