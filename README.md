@@ -85,7 +85,7 @@ qlife webchat – lgbtq+ peer support
 has a webchat where you can chat with peer workers. you can also use the forums.
 
 [**Good Minds**](https://goodminds.com.au)   
-see an actual psychologist, personally, for free with a mhcp. Jerry goes to Ka Ming Ng (who also speaks canto)
+see an actual psychologist, personally, for free with a mhcp. 
 
 [**Halaxy \- Helping You Navigate the Complex Galaxy of Health**](https://www.halaxy.com/)  
 harder to use than GoodMinds, but can facilitate looking for a psychologist/psychiatrist
